@@ -1,1 +1,1 @@
-#你可以在这下载由作者制作的官方LiangYuWallPaper插件
+# 你可以在这下载由作者制作的官方LiangYuWallPaper插件
